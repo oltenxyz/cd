@@ -1,2 +1,2 @@
 # cd
-physical media
+im a cd lol
